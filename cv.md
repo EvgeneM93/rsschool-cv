@@ -1,9 +1,9 @@
 # Mukhin Evgene
-===============
-##Education
+===
+## Education
 
-##Work Experience
+## Work Experience
 
-##Languages
+## Languages
 
 
