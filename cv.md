@@ -12,8 +12,11 @@ december 2018 - september 2020  |ALC "ELECTROSTROYINVEST"|Electrician of securit
 september 2020 - september 2021  | TTK Engineering      | Electronic engineer
 september 2021 - now             | ALC "ELECTROSTROYINVEST"|  Electronic engineer
 ### Languages
-*English: Basic
-*Russian: Advancer
-*Belorussion: Middle
-
+* English: Basic
+* Russian: Advancer
+* Belorussion: Middle
+#### Contacts
+email: evgenemukhin@gmail.com 
+mob: +375295265021
+[vk] (https://vk.com/id187903799)
 
