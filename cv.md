@@ -16,7 +16,7 @@ september 2021 - now             | ALC "ELECTROSTROYINVEST"|  Electronic enginee
 * Russian: Advancer
 * Belorussion: Middle
 #### Contacts
-email: evgenemukhin@gmail.com 
-mob: +375295265021
-[vk] (https://vk.com/id187903799)
+* email: evgenemukhin@gmail.com 
+* mob: +375295265021
+* [vk] (https://vk.com/id187903799)
 
